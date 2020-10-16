@@ -55,3 +55,15 @@ skip кароче
 ну подрубил битлокер
 
 
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/HhrtfZP/image.png" alt="image" border="0"></a><br />
+
+
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/DGxCJk8/image.png" alt="image" border="0"></a><br />
+
+
+<a href="https://ibb.co/qDm1qYk"><img src="https://i.ibb.co/mRhzZ56/image.png" alt="image" border="0"></a>
+
+
+ну вроде работает етот ваш бит лукер
+
+
